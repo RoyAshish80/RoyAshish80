@@ -1,0 +1,1 @@
+I am a Software Professional with over 14 years of experience in the IT industry in Banking and Finance, E-Commerce, EPiServer (Optimizely) CMS, Agile-Scrum methodologies, technical design, coding, unit testing, peer review, technical support/maintenance with strong exposure in the.NET (C#) Web Development.
